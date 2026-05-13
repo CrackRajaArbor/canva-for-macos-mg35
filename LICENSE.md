@@ -1,4 +1,4 @@
-# 
+# Canva for macOS automatic Template - batch processing and layer styles offers the most advanced Canva for macOS template, with batch processing and layer styles. Ideal for
 
 
 
